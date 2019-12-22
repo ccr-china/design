@@ -13,3 +13,7 @@
 ---
 
 Thank you very much for your generous contribution. 
+
+# 2019年计算传播学年会视觉设计的素材（psd格式） 
+
+链接:https://pan.baidu.com/s/1EPDmM-DNEpL97izEX0jwdQ  密码:q17q
